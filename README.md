@@ -1,7 +1,7 @@
 # Jesse White
 
 **Engineering Leader | Deep and Broad Technical Depth | AI/ML | Big Tech and Startups**  
-Issaquah, WA · linkedin.com/in/byjlw * www.byjlw.com
+Issaquah, WA · linkedin.com/in/byjlw · www.byjlw.com
 
 ## Summary
 
